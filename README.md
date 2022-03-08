@@ -1,1 +1,0 @@
-# Listao_UFRGS_2022
